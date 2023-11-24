@@ -1,2 +1,2 @@
 # Praktika2
-legalize nuclear bombs :/
+NO legalize nuclear bombs :/
